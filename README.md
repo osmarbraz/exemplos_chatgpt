@@ -1,0 +1,1 @@
+Exemplos diversos com Chatgpt.
